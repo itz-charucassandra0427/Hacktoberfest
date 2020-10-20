@@ -1,2 +1,2 @@
 # Hacktoberfest
-Helooooooooooooooo everyone this is an extremely weird place that u shld not read its jz copied code so COPYRITE
+Helooooooooooooooo everyone this is jz copied so can ppl help modify it tqtq
